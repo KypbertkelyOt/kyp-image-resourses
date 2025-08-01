@@ -1,0 +1,1 @@
+# kyp-image-resourses
